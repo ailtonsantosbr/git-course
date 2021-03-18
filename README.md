@@ -7,7 +7,7 @@ estou tendo meu inicio no Git & GitHub.
 Boa Sorte para eu..
 
 
-Gostando do curso, muito bom.. PArabens William Justen
+Gostando do curso, muito bom.. Parabéns William Justen
 
 
 São Paulo, 18 de março de 2.021
